@@ -4,5 +4,5 @@ team memebers re :
 Nour Mohammed Abdessamed 
 Sahnoune Nesrine
 Hakmi Abdelkrim
-Guendouzi abdehak
+Guendouzi Abdehak
 Mohammed Bakkar
